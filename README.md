@@ -1,4 +1,4 @@
-## 👩 Hi!
+##  Hi!
 
 Eu sou Carlos Pinho
  
